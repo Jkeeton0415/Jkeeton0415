@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jkeeton0415
 - 👀 I’m interested in ...earning crypto for free
 - 🌱 I’m currently learning .well trying to learn the pi app..
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ..any thing I already know to anyone that asks .
 - 📫 How to reach me ...
 
 <!---
